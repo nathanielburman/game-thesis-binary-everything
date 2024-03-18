@@ -15,9 +15,19 @@ Mario "World" UPDATE Verion 99
 1. sex is binary
 2. you cannot kill enemies anymore as Mario
 3. you are a LOVER now, not a KILLER
-4. you have sex with each enemy and turn them into your army
+4. you can avoid enemies OR you have sex with each enemy and turn them into your army
 5. multiple new meters and bars for health and resource stealing from enemies as you have binary sex with each enemy
 6. you are going to LOVE your enemy
+
+This is the LOVE MARIO (15 Luigi) version of the new 'game system'.
+
+Mario is the new introduction character to the new system in gaming. His style is interesting.
+
+Mario in this initial version is a lover. He is not homosexual with Luigi. Luigi is not a playable character in Super Mario Bros. (Luigi is not playable yet).
+
+Mario is still attempting to rescue the Mushroom Princess and mate with her. How many people you convert or have sex with will change the endings of the games.
+
+This is the new unofficial episode in the Mario & Luigi Brothers, Bowser & Koopas, and the Mushroom Princess Franchice.
 
 Mario as a Prototype for ALL Games
 ---

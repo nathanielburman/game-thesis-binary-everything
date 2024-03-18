@@ -43,8 +43,15 @@ Sap an enemy and move on to the next level
 ---
 You progress by avoiding enemies or sapping them of their life by humping them or sending waves to them.
 
-At the end of the elvels you raise the flag and progress onto the next level all the same.
+At the end of the levels you raise the flag and progress onto the next level all the same.
 
 Love will prevail, There is no more Death in gaming
 ---
-enemies just walk around like normal. They are sapped of their enery and then just behave normal and do not attack you any more. Enemies walk through you after you sap them.
+Enemies just walk around like normal. They are sapped of their energy and then just behave normal and do not attack you any more. Enemies walk through you after you sap them.
+
+You can play any game this way now.
+
+Enemies AI attacks you at first but changes after a sap move and they move normally along whatever path they normally move along.
+
+All Games Can Be CHanged To SUpport This New Format
+---

@@ -18,3 +18,10 @@ Mario "World" UPDATE Verion 99
 4. you have sex with each enemy and turn them into your army
 5. multiple new meters and bars for health and resource stealing from enemies as you have binary sex with each enemy
 6. you are going to LOVE your enemy
+
+Mario as a Prototype for ALL Games
+---
+1. Take Mario game player hero as prototype.
+2. He cannot kill enemies anymore.
+3. He has a pumping power now.
+4. Pumping power explained: 1. he can have sex with it by just moving the pixels into it and away from the target enemies when you are close enough. The vibration will cause the enemy to change. 2. a harpoon connects with enemies instead of sex and creates a wave that changes the enemies. 3. You can pump an enemy with a wave and eventually you can sap the enemy of all their actual virabtion. 4. enemies are changed by vibration, bullets are like vibration and oscillation, this is similar.

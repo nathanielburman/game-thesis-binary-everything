@@ -19,6 +19,9 @@ Mario "World" UPDATE Verion 99
 5. multiple new meters and bars for health and resource stealing from enemies as you have binary sex with each enemy
 6. you are going to LOVE your enemy
 
+1. Start game small and try to avoid enemies. 
+2. Gain a mushroom to power up and have the binary wave pumping ability to change the enemies. No more jumping on their heads.
+
 This is the LOVE MARIO (15 Luigi) version of the new 'game system'.
 
 Mario is the new introduction character to the new system in gaming. His style is interesting.

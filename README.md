@@ -1,5 +1,5 @@
 # game-thesis-binary-everything
-Sex is Binary. The first games invented in our dimension were all laser fast shooting games. We live in the "Everything shoots" dimension. There is a alternate dimension called the sex/love dimension where everything in gaming was always sex based. A player would combine &amp; shoot inside of with enemies not kill them. 
+Sex is Binary. The first games invented in our dimension were all laser fast shooting games. We live in the "Everything shoots" dimension. There is an alternate dimension called the sex/love dimension where everything in gaming was always sex based, it is a holier place where there is no evil. A player would combine &amp; shoot inside-of with enemies, not kill them. 
 
 In a holier dimension where all data was not evil, the games originally invented were slightly different.
 
@@ -12,7 +12,7 @@ Kill everything. Kill the hookers, then steal their money. THen steal a car and 
 The Return of Sex
 ---
 Mario "World" UPDATE Verion 99
-1. sex is inary
+1. sex is binary
 2. you cannot kill enemies anymore as Mario
 3. you are a LOVER now, not a KILLER
 4. you have sex with each enemy and turn them into your army

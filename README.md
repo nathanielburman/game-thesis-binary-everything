@@ -25,3 +25,13 @@ Mario as a Prototype for ALL Games
 2. He cannot kill enemies anymore.
 3. He has a pumping power now.
 4. Pumping power explained: 1. he can have sex with it by just moving the pixels into it and away from the target enemies when you are close enough. The vibration will cause the enemy to change. 2. a harpoon connects with enemies instead of sex and creates a wave that changes the enemies. 3. You can pump an enemy with a wave and eventually you can sap the enemy of all their actual virabtion. 4. enemies are changed by vibration, bullets are like vibration and oscillation, this is similar.
+
+Sap an enemy and move on to the next level
+---
+You progress by avoiding enemies or sapping them of their life by humping them or sending waves to them.
+
+At the end of the elvels you raise the flag and progress onto the next level all the same.
+
+Love will prevail, There is no more Death in gaming
+---
+enemies just walk around like normal. They are sapped of their enery and then just behave normal and do not attack you any more. Enemies walk through you after you sap them.
